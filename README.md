@@ -24,4 +24,4 @@ I maintain and troubleshoot elevators and escalators in the field, and I previou
 
 ## Contact
 
-[LinkedIn](www.linkedin.com/in/alexismedranomm)
+[LinkedIn](https://www.linkedin.com/in/alexismedranomm)
